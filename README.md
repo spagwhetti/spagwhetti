@@ -1,1 +1,1 @@
-Hello, I'm spagwhetti, you can view more at https://spagwhetti.co.uk/
+Hello, I'm spagwhetti, you can view more at https://spag.site/
